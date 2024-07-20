@@ -1,0 +1,2 @@
+# kuro
+hanya untukmu
